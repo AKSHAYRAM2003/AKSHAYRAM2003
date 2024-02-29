@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **ramakshay100@gmail.com**
   w
-- 📄 Know about my experiences [https://drive.google.com/file/d/1xQWsEgDT2d8w_TYP-2WzDy726Y_iheBa/view?usp=sharing](https://drive.google.com/file/d/1xQWsEgDT2d8w_TYP-2WzDy726Y_iheBa/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ulhdll4LnjwbHMbCLwZfj2hawGl_tzZv/view?usp=sharing])
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
